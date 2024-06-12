@@ -1,0 +1,1 @@
+Use as a reaction, sun, fireball, etc.
