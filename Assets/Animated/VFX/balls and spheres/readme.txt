@@ -1,0 +1,1 @@
+This category is for round effects, balls, spheres etc. things like suns, nuclear reactions, 'atomic' effects and the like.

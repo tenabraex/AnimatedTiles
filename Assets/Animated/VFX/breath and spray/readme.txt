@@ -1,0 +1,1 @@
+This category is for breath weapons, linear blasts, traps, etc

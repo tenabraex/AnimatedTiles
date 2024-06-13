@@ -1,0 +1,1 @@
+this category is for swirling effects like whirling ghosts, whirlwind and ribbony magic
